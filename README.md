@@ -1,0 +1,1 @@
+# D-Meus-documentos-rea-de-Trabalho-Pastas-python-projects-curso
